@@ -9,3 +9,7 @@ Ivan Vidav
 Predsednik države:
 
 Borut Pahor
+
+Predsednik vlade:
+
+Janez Janša
