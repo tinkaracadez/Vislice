@@ -8,4 +8,4 @@ Ivan Vidav
 
 Predsednik države:
 
-Borut Pahor
+Borut Borut Pahor
